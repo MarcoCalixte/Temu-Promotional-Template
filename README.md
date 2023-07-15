@@ -1,1 +1,1 @@
-Bj's Promotional Template
+Temu Promotional Template
